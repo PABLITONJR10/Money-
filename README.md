@@ -1,0 +1,1 @@
+vencerekos juntos
